@@ -13,3 +13,5 @@ Suze mi teku od smijeha. Ako prestanem da se smijem, ostaće samo suze.
 Svakome ću priznati pravo da me prevari, osim prijatelju.
 Više je dobrih ljudi na svijetu nego zlih. Mnogo više! Samo se zli dalje čuju i teže osjećaju. Dobri ćute.
 Znaš li šta je najljepše u životu? Želja, prijatelju.
+Desanka Maksimovic najljepsa pesma koju sam
+ikada cula je Krvava Bajka i to je meni licno najljepsa pesma
